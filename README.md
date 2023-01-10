@@ -1,3 +1,3 @@
 # 👨‍💻 Nathan Winstead
 
-**'Student @ UCF (Infomration Technology)'**
+**Student @ UCF (Information Technology)**
